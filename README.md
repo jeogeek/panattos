@@ -5,6 +5,8 @@
 
 📫 Como entrar em contato comigo:
 Github: @jeogeek
+
 E-mail: lauramarques@unipam.edu.br
+
 LinkedIn: linkedin.com/in/laura-marques-68a702268/
 
